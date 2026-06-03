@@ -9,9 +9,9 @@ Can’t choose? [Roll two dice](https://www.google.com/search?q=2d6).
 1. Why does clarity morally matter?  
 2. What were your school lunches like?  
 3. If you could magically rearrange your kitchen however you wanted, how would you rearrange it?  
-4. What does it feel like to be stuck, and what gets you unstuck?  
+4. Tell me everything about the building across from you. 
 5. What is (or isn’t) the difference between knowing something vs. having experience with something?  
-6. What would you attempt if you were allowed to fail?
+6. What would you most like to attempt if you were allowed to fail?
 
 ## Tinker Approaches
 
