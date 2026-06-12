@@ -75,6 +75,6 @@ Then, add an index card between the Past and Present cards. On it, pinpoint and 
 
 Then track down evidence to back that “what changed” index card up. Some places you might look: Old texts, diaries, emails, past school assignments, asking a few different people who’ve known you for a while, photos on your phone, paper documents, etc. The point isn’t to find “proof” but to find a range of things that “crystallize” together to tell the same story, outside just relying on your own memory. Jot down the evidence you find onto new index cards and place them around the “what changed” card.
 
-Then imagine what events the next ten years might hold for you. Jot down one event per card and place these cards between the Past and Present cards.
+Then imagine what events the next ten years might hold for you. Jot down one event per card and place these cards between the Future and Present cards.
 
 Finally, write on a new scratch sheet of paper the story you see unfolding in front of you in these index cards, ie., the story of you (or, better said, *this* story of you—we’re complex things\!)
