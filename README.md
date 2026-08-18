@@ -2,6 +2,8 @@
 
 Choose a prompt. Choose an approach. Get away from the keyboard. Listen to your gut and *wriiiiiiiiite*.
 
+Write at least 200 words. Likely more.
+
 Can’t choose? [Roll two dice](https://www.google.com/search?q=2d6).
 
 ## Tinker Prompts
